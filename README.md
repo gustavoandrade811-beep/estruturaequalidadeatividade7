@@ -1,0 +1,1 @@
+# estruturaequalidadeatividade7
